@@ -1,2 +1,0 @@
-# GOG
-Página CV
